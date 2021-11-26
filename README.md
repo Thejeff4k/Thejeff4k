@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Thejeff4k
+- 👀 I’m interested in codes, python, HTML , Portugol, C# , unity, etc.
+- 🌱 i'm not learning books but i'm watching courses on youtube, and send books to my pratics :p
+- 💞️ I’m looking to collaborate on community
